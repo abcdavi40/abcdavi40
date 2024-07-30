@@ -8,7 +8,7 @@ Meu nome é Davi emanoel
 
 ### Você pode entrar em contato comigo :mailbox
 
-paludettomarcelo@gmail.com
+00001236952832sp@al.educacao.sp.gov.br.com
 
 @davi_omena08
 
